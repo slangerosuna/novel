@@ -1,0 +1,1 @@
+Main part of text is an epic in dactylic hexameter (classical meter) (/--/--/--/--/--/x), with action scenes in anapestic quatrameter stylized to be similar in structure to classical meter (--/--/--//x), and scenes with significant meaning in a metre that best represents the emotion

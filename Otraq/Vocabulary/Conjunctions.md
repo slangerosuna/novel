@@ -1,0 +1,5 @@
+ha (and)
+herangv (or)
+maz (but)
+ra (because)
+qu (if)
